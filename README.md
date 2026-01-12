@@ -1,0 +1,74 @@
+# CENT – yummy goodday
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+はじまるよ!party time
+ご提供メインディッシュ
+胸張って落とす
+ほっぺたから
+溢れる期待
+ネガな朝だって
+僕たちは超正義
+謎めいてスパイス
+スキ混ぜ込んで
+いざ
+世界を変えるのは
+おいしい たのしい うれしい
+幸せの素
+手と手(oh oh)
+繋ぎ行こう
+ohohohohohohohoh
+Let me try Let we try
+一緒が(oh oh)
+一緒がいい
+ohohohohohohohohoh
+It's all right
+あどけなくっていい
+滅茶苦茶だっていい
+らしい生き方を
+逃げ道の先
+まわり道の先に
+約束が待つよ
+ちょと待ってよ!たまには
+小休止でこしらえて
+振り返るとほら
+仲間がいる
+キラり未来
+エゴも必要さ
+愛がありゃ超はっぴー
+人間味ウマみ
+詰め込んでこう
+いざ
+世界を変えるのは
+やさしい いとしい とうとい
+幸せの素
+手と手(oh oh)
+繋ぎ行こう
+ohohohohohohohoh
+Let me try Let we try
+一緒が(oh oh)
+一緒がいい
+ohohohohohohohohoh
+It's all right
+情けなくったって
+認めてやんだぜ
+らしい生き方を
+間違えたっていい
+飛び込め人生謳歌
+視界は煌めく
+あるがままでいい
+戦わなくては
+らしい生き方で
+とんでもない日々
+すべてが贈り物
+抱きしめていよう
+love love love
+Yummy Good Day
+Dance through life
+we can do it
+love love love
+Yummy Good Day
+Dance through life
+we can do it
+```
